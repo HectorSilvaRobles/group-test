@@ -6,13 +6,13 @@
 3.
 4.
 
-5.Gold rings
+5) Five Gold rings
 
-6. 7. 8.
+6) 7. 8.
 
-9.
-10.
-11.
+7)
+8)
+9)
 
-12) drummers drumming
-13)
+12. drummers drumming
+13.
