@@ -2,7 +2,7 @@
 
 1.
 
-2. two turtle doves
+2. two turtles stuck in an upside down position
 3.
 4.
 5.
