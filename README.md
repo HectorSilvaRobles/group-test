@@ -8,11 +8,11 @@
 
 5) Five Gold rings
 
-6) 7. 8.
+6)
 
-7)
-8)
-9)
+7) 8) 9)
 
+10. turtles barking
+11. I want a burrito
 12. drummers drumming
 13.
